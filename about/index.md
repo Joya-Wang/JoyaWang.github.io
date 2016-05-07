@@ -1,11 +1,11 @@
 ---
 layout: page
-title: About the Theme
-tags: [about, Jekyll, theme, moon]
+title: Joya's Personal Space
+tags: 我还没有开始分类呢，所以还没有标签
 date: 2016-03-21
 ---
     
-<center><a href="http://taylantatli.github.io/Moon"><b>Moon</b></a> is a minimal, one column jekyll theme.</center>
+<center><a href="http://joyawang.github.io/"><b>Joya</b></a> 将在这里创建自己的世界</center>
 
 ## Features
 * Minimal, you can focus on your content
