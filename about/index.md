@@ -1,25 +1,16 @@
 ---
 layout: page
-title: 阿东吧
+title: Joya
 tags: 我还没有开始分类呢，所以还没有标签
 date: 2016-03-21
 ---
     
 <center><a href="http://joyawang.github.io/"><b>Joya</b></a> 将在这里创建自己的世界</center>
 
-## Features
-* Minimal, you can focus on your content
-* Responsive
-* Disqus integration
-* Syntax highlighting
-* Optional post image
-* Social icons
-* Page for sharing projects
-* Optional background image
-* Simple navigation menu
-* MathJax support
+## Introduction
 
-## Preview
+
+## History
 
 {% capture images %}
     https://cloud.githubusercontent.com/assets/754514/14509720/61c61058-01d6-11e6-93ab-0918515ecd56.png
@@ -27,10 +18,6 @@ date: 2016-03-21
 {% endcapture %}
 {% include gallery images=images caption="Screenshots of Moon Theme" cols=2 %}
 
-See a [live version of Moon](http://taylantatli.github.io/Moon) hosted on GitHub.
+## Thanks
 
-## Getting Started
 
-To learn how to install and use this theme check out the [Setup Guide](http://taylantatli.me/Moon/moon-theme/) for more information.
-      
-[Install Moon](https://github.com/TaylanTatli/Moon){: .btn}
