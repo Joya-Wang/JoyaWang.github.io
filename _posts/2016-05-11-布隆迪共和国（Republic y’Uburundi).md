@@ -2,7 +2,8 @@
 layout: post
 title: "布隆迪共和国"
 date: 2012-05-22
-excerpt: "非洲国家"
+excerpt: "非洲国家"/Users/wangjoya/JoyaWang.github.io
+
 tags: [sample post, readability, test]
 comments: true
 ---
