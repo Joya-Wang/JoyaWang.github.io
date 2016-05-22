@@ -7,39 +7,41 @@ tags: [sample post, readability, test]
 comments: true
 ---
 
-Portland in shoreditch Vice, labore typewriter pariatur hoodie fap sartorial Austin. Pinterest literally occupy Schlitz forage. Odio ad blue bottle vinyl, 90's narwhal commodo bitters pour-over nostrud. Ugh est hashtag in, fingerstache adipisicing laboris esse Pinterest shabby chic Portland. Shoreditch bicycle rights anim, flexitarian laboris put a bird on it vinyl cupidatat narwhal. Hashtag artisan skateboard, flannel Bushwick nesciunt salvia aute fixie do plaid post-ironic dolor McSweeney's. Cliche pour-over chambray nulla four loko skateboard sapiente hashtag.
+# 生活方式
+###创造适合自己的环境
 
-Vero laborum commodo occupy. Semiotics voluptate mumblecore pug. Cosby sweater ullamco quinoa ennui assumenda, sapiente occupy delectus lo-fi. Ea fashion axe Marfa cillum aliquip. Retro Bushwick keytar cliche. Before they sold out sustainable gastropub Marfa readymade, ethical Williamsburg skateboard brunch qui consectetur gentrify semiotics. Mustache cillum irony, fingerstache magna pour-over keffiyeh tousled selfies.
+###选择自己喜欢的生活方式
+阅读，多阅读一些伟人的人生传记，看他们的性格、价值观、人生观、兴趣、特长、人生道路等。
 
-## Cupidatat 90's lo-fi authentic try-hard
+旅游，看生活方式，看他们的人生观，看他们怎样度过自己的一生的
 
-In pug Portland incididunt mlkshk put a bird on it vinyl quinoa. Terry Richardson shabby chic +1, scenester Tonx excepteur tempor fugiat voluptate fingerstache aliquip nisi next level. Farm-to-table hashtag Truffaut, Odd Future ex meggings gentrify single-origin coffee try-hard 90's.
+###自我调节
+强者，都是含泪奔跑的人
+越有故事的人越沉静越简单
+努力过后，才知道许多事情，坚持坚持就过来了
+你努力、尽力了，才有资格说自己运气不好
+让心简单，让心透明，让心轻松
+这世界上除了你自己，没有谁可以真正帮到你。
+人生就像是在雪地里行走，向后看，是自己一路走来的轨迹；向前看，是白茫茫的一片。不要问“该往哪儿走”，只要回答“想往哪儿走”。自己的双脚就是书写历史的工具。
+原来不是所有的东西都要靠学习才会的，有些东西当你站在某个高度、某个角度的时候，自然就会了；当你成长到一定程度的时候，就自然地成熟了。
+活出个样来，给自己看，千难万险脚下踩，啥也难不倒咱
+To be warrior，to get to the montaintop我知道，每个成功后面都有着别人不知道拼命努力，那些伟大的人背后都有只有自己知道的心酸。致2015年总冠军金州勇士队，致库里，致汤普森父子，致詹姆斯、致科比，致所有那些在世界上任何一个看不见的角落里为了自己的不平凡默默努力的人
 
-* Sartorial hoodie
-* Labore viral forage
-* Tote bag selvage
-* DIY exercitation et id ugh tumblr church-key
+平衡自己的人生，除工作外还应有其它的事情
+周围的一切可以随着心态的改变而改变，享受自由，享受生活，享受环境。过去复杂的东西，现在变得简单。过去的压力变成现在的动力。
+有感觉到自己的生活枯燥无聊，是因为自己渐渐掌控了生活中琐碎的杂事，所以自然而然就会站在更高的位置审视现在的人生了。
+心情可以被调节的。比如听听带劲的歌
+成长就是做那些让你不舒服，但还不至于痛苦的事情。
+人在悲观和负能量缠身的时候最需要别人的开导和安慰，正能量，能释放的那种歌曲。
+Cheer up的几种有效方法
+1.看成功日记
+2.听劲爆、励志的歌曲！
 
-Incididunt umami sriracha, ethical fugiat VHS ex assumenda yr irure direct trade. Marfa Truffaut bicycle rights, kitsch placeat Etsy kogi asymmetrical. Beard locavore flexitarian, kitsch photo booth hoodie plaid ethical readymade leggings yr.
+每个人所要经历的何其相似：从天真无邪、懵懂无知到老成世故、阅历丰富，再到豁达觉悟、快乐幸福，问题是你是否做好了准备？
+既然选择了远方，就只顾风雨兼程
+不要看不起自己，在有的人眼里，你是高材生！
 
-Aesthetic odio dolore, meggings disrupt qui readymade stumptown brunch Terry Richardson pour-over gluten-free. Banksy american apparel in selfies, biodiesel flexitarian organic meh wolf quinoa gentrify banjo kogi. Readymade tofu ex, scenester dolor umami fingerstache occaecat fashion axe Carles jean shorts minim. Keffiyeh fashion axe nisi Godard mlkshk dolore. Lomo you probably haven't heard of them eu non, Odd Future Truffaut pug keytar meggings McSweeney's Pinterest cred. Etsy literally aute esse, eu bicycle rights qui meggings fanny pack. Gentrify leggings pug flannel duis.
+我又发现，貌似自己之前状态再怎么不好，只要能有一段时间压着去走心看，一会就真的走心了。
 
-## Forage occaecat cardigan qui
 
-Fashion axe hella gastropub lo-fi kogi 90's aliquip +1 veniam delectus tousled. Cred sriracha locavore gastropub kale chips, iPhone mollit sartorial. Anim dolore 8-bit, pork belly dolor photo booth aute flannel small batch. Dolor disrupt ennui, tattooed whatever salvia Banksy sartorial roof party selfies raw denim sint meh pour-over. Ennui eu cardigan sint, gentrify iPhone cornhole.
 
-> Whatever velit occaecat quis deserunt gastropub, leggings elit tousled roof party 3 wolf moon kogi pug blue bottle ea. Fashion axe shabby chic Austin quinoa pickled laborum bitters next level, disrupt deep v accusamus non fingerstache.
-
-Tote bag asymmetrical elit sunt. Occaecat authentic Marfa, hella McSweeney's next level irure veniam master cleanse. Sed hoodie letterpress artisan wolf leggings, 3 wolf moon commodo ullamco. Anim occupy ea labore Terry Richardson. Tofu ex master cleanse in whatever pitchfork banh mi, occupy fugiat fanny pack Austin authentic. Magna fugiat 3 wolf moon, labore McSweeney's sustainable vero consectetur. Gluten-free disrupt enim, aesthetic fugiat jean shorts trust fund keffiyeh magna try-hard.
-
-## Hoodie Duis
-
-Actually salvia consectetur, hoodie duis lomo YOLO sunt sriracha. Aute pop-up brunch farm-to-table odio, salvia irure occaecat. Sriracha small batch literally skateboard. Echo Park nihil hoodie, aliquip forage artisan laboris. Trust fund reprehenderit nulla locavore. Stumptown raw denim kitsch, keffiyeh nulla twee dreamcatcher fanny pack ullamco 90's pop-up est culpa farm-to-table. Selfies 8-bit do pug odio.
-
-### Thundercats Ho!
-
-Fingerstache thundercats Williamsburg, deep v scenester Banksy ennui vinyl selfies mollit biodiesel duis odio pop-up. Banksy 3 wolf moon try-hard, sapiente enim stumptown deep v ad letterpress. Squid beard brunch, exercitation raw denim yr sint direct trade. Raw denim narwhal id, flannel DIY McSweeney's seitan. Letterpress artisan bespoke accusamus, meggings laboris consequat Truffaut qui in seitan. Sustainable cornhole Schlitz, twee Cosby sweater banh mi deep v forage letterpress flannel whatever keffiyeh. Sartorial cred irure, semiotics ethical sed blue bottle nihil letterpress.
-
-Occupy et selvage squid, pug brunch blog nesciunt hashtag mumblecore skateboard yr kogi. Ugh small batch swag four loko. Fap post-ironic qui tote bag farm-to-table american apparel scenester keffiyeh vero, swag non pour-over gentrify authentic pitchfork. Schlitz scenester lo-fi voluptate, tote bag irony bicycle rights pariatur vero Vice freegan wayfarers exercitation nisi shoreditch. Chambray tofu vero sed. Street art swag literally leggings, Cosby sweater mixtape PBR lomo Banksy non in pitchfork ennui McSweeney's selfies. Odd Future Banksy non authentic.
-
-Aliquip enim artisan dolor post-ironic. Pug tote bag Marfa, deserunt pour-over Portland wolf eu odio intelligentsia american apparel ugh ea. Sunt viral et, 3 wolf moon gastropub pug id. Id fashion axe est typewriter, mlkshk Portland art party aute brunch. Sint pork belly Cosby sweater, deep v mumblecore kitsch american apparel. Try-hard direct trade tumblr sint skateboard. Adipisicing bitters excepteur biodiesel, pickled gastropub aute veniam.
